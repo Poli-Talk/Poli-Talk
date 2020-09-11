@@ -1,6 +1,6 @@
 ### Hi there, I'm [Onion Sandwich][website] 👋
 
-## I'm a QA Who Codes!
+## I'm a QA who Codes!
 
 - 🌱 I’m currently learning everything - unfortunately 🤣
 - ⚡ Fun fact: I love football and cricket
